@@ -1,0 +1,1 @@
+go practice refs: https://www.youtube.com/watch?v=IyPujQ381YY&list=TLGGDD6rqwZ4jQIwODA1MjAyMg&t=2071s&ab_channel=%E3%82%B5%E3%83%9D%E3%83%BC%E3%82%BF%E3%83%BC%E3%82%BA%E9%81%8B%E5%96%B6%E4%BA%8B%E5%8B%99%E5%B1%80
